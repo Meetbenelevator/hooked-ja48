@@ -1,4 +1,4 @@
-#  
+#  elite Script for attack on titan revolution is the best attack on titan revolution Script, featuring auto-farm and instant win. Safe and powerful for
 
 
 
